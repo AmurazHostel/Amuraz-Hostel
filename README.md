@@ -1,0 +1,2 @@
+# Amuraz-Hostel
+Amuraz Hostel
